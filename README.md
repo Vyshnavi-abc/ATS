@@ -135,7 +135,7 @@ https://ats-gjq7.onrender.com
 
 ## 👩‍💻 Author
 
-**Sai Deekshitha**
+**Vyshnavi K**
 
 GitHub: https://github.com/Deekshi036
 
