@@ -137,7 +137,7 @@ https://ats-gjq7.onrender.com
 
 **Vyshnavi K**
 
-GitHub: https://github.com/Deekshi036
+GitHub: https://github.com/Vyshnavi-abc/ATS
 
 ---
 
